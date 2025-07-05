@@ -25,4 +25,4 @@
  每日更新榜单：收录最新发布影片，不错过任何一部佳作
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/nina4562/56564 ）</span>
